@@ -1,1 +1,0 @@
-ovrfckeldoekfc,dkolmedwklsplwdcçsp´sç
